@@ -1,0 +1,3 @@
+- Hello I'm a random person who made a GitHub account to star cool proyects and stuff
+- I don't really know how to code but if I learn to...
+- idk what I'll do. ( Probably won't use it xd )
